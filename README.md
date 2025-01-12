@@ -18,4 +18,4 @@ Feel free to explore my projects and follow along with my learning progress!
 
 ## 📫 Contact
 
-You can reach me on LinkedIn: [kiitan-oluwasere](https://www.linkedin.com/in/kiitan-oluwasere)
+You can reach me on LinkedIn: [Kiitan-Oluwasere](https://www.linkedin.com/in/kiitan-oluwasere)
